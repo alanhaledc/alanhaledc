@@ -6,6 +6,6 @@ Could you give me a chance? 😃
 
 My blog: [https://haledeng.com/](https://haledeng.com/)
 
-My Email: haledeng88@gmail.com.
+My Email: haledeng88@gmail.com
 
 Thank you!
